@@ -1,0 +1,1 @@
+# flash-kart-privacy-policy
